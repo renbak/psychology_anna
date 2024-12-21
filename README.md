@@ -1,1 +1,1 @@
-# psichology
+# psychology
